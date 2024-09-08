@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SamPunisher
+- 👀 I’m interested in learn coding
+- 🌱 I’m currently learning Java,Python and C 
+- 💞️ I’m looking to collaborate on Devloper
+- 📫 How to reach me in Instagram @Sam.Mota
+- 😄 Pronouns: He
+- ⚡ Fun fact: Idk what can be funny but my english is a comedy show
